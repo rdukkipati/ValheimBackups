@@ -1,3 +1,3 @@
-#Before Deep North
+# Before Deep North
 
 Our last activity was us preparing to enter the Mistlands. I've explored a couple dungeons in the Mistlands. Egbert has collected some Mistlands gear, and Straightaces did some venturing into the Mistlands too. I've paused my Mistlands venturing because I need to bolster my food supply and infrastructure. I also need to set up some infrastructure in the Mistlands or a Mistlands adjacent area. Honeybear island is also in need of development.
